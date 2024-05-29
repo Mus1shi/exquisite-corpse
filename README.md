@@ -15,3 +15,7 @@ Parfois, je me demande si j'ai été un animal dans une autre vie, quelle vie de
 bonjour je suis fabrice j habite uccle
  je suis une formation en DEV WEB chez BECODE
  etant passioné de football j ai eu a diner une fois avec footballeur renomé
+
+la sera di luna piena,
+andate al pollaio, quando l'olocausto indica la mezzanotte in punto!
+Strappate tre piume al gallo. Non una o quattro! Tre piume!
